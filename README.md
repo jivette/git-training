@@ -17,7 +17,7 @@ Me gustaria ir al momento donde se descubrio la primer reserva de Oro y plata y 
 
 > Respuesta 3
 
-> Respuesta 4
+> Respuesta 4 A salvar al noba 
 
 > Respuesta 5
 

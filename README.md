@@ -11,6 +11,7 @@ te sientas en lo que parecía una nave espacial con forma de pelota.
 ¿A donde te gustaria ir?
 
 > Respuesta 1
+Me gustaria ir al momento donde se descubrio la primer reserva de Oro y plata y apartar una mi reserva para que me sirva en el futuro.
 
 > Respuesta 2
 

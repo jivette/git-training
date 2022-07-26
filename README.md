@@ -10,14 +10,14 @@ te sientas en lo que parecía una nave espacial con forma de pelota.
 
 ¿A donde te gustaria ir?
 
-> Respuesta 1
+> Respuesta 1 :
 
-> Respuesta 2
+> Respuesta 2 :
 
-> Respuesta 3
+> Respuesta 3 :
 
-> Respuesta 4
+> Respuesta 4 :
 
-> Respuesta 5
+> Respuesta 5 :
 
-> Respuesta 6
+> Respuesta 6 : epoca de los dinosaurios

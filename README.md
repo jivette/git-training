@@ -14,6 +14,7 @@ te sientas en lo que parecía una nave espacial con forma de pelota.
 Me gustaria ir al momento donde se descubrio la primer reserva de Oro y plata y apartar una mi reserva para que me sirva en el futuro.
 
 > Respuesta 2
+prueba
 
 > Respuesta 3
 

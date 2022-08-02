@@ -13,7 +13,7 @@ te sientas en lo que parecía una nave espacial con forma de pelota.
 > Respuesta 1
 Me gustaria ir al momento donde se descubrio la primer reserva de Oro y plata y apartar una mi reserva para que me sirva en el futuro.
 
-> Respuesta 2 : 
+> Respuesta 2 : Olirama, cambio 2
 
 > Respuesta 3 : esta es otra respuesta
 

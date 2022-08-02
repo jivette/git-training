@@ -19,10 +19,6 @@ Me gustaria ir al momento donde se descubrio la primer reserva de Oro y plata y 
 
 > Respuesta 4 A salvar al noba 
 
-<<<<<<< HEAD
 > Respuesta 5 Holass :D
-=======
-> Respuesta 5 :
->>>>>>> main
 
 > Respuesta 6 : epoca de los dinosaurios
